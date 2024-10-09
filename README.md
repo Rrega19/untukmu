@@ -1,2 +1,0 @@
-# untukmu
-untukmu
